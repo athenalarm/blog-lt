@@ -36,4 +36,10 @@ Sekite naujausias mūsų **saugumo inovacijas**, atvejų studijas ir produktų n
 
 ---
 
+### 🛡️ Globalios saugumo įžvalgos
+
+**„Athenalarm“ yra profesionalus gamintojas, besidalijantis ekspertų įžvalgomis apie apsaugos nuo įsilaužimo signalizacijos produktus ir sistemas.** Vykdydami savo įsipareigojimą pasaulinei saugumo bendruomenei, teikiame lokalizuotą kompetenciją 71 kalba. Susipažinkite su mūsų žinių baze Europai, Afrikai, Azijai, Amerikai ir Okeanijai [**čia**](https://athenalarm.com/burglar-alarm-manufacturer/athenalarm-global-blogs/).
+
+---
+
 > _Athenalarm — Profesionali signalizacijos sistema nuo įsilaužimų gamintoja & Tinklų signalizacijos stebėjimo sprendimai._
